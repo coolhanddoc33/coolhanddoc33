@@ -10,4 +10,4 @@
 coolhanddoc33/coolhanddoc33 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->👆👆👆🙏🙏🙏🙌🙌🙌✈️✈️✈️👌👌👌
-...Ready to delivery optimal quality in writing, editing, and AI model training for the world's top organizations.
+...Ready to delivery optimal quality writing, editing, content strategy, and LLM/Generative AI model integration training for the world's top organizations.
