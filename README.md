@@ -6,8 +6,5 @@
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Quarterfinalist, 2021 ScreenCraft Pilot Competition, Series Creator: "Whiskey Kings," an American Prohibition drama about two American soldiers from different worlds whose unlikely bond leads them to both amazing overnight success and the fight of their lives.
 
-<!---
-coolhanddoc33/coolhanddoc33 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
 --->👆👆👆🙏🙏🙏🙌🙌🙌✈️✈️✈️👌👌👌
 ...Ready to delivery optimal quality writing, editing, content strategy, and LLM/Generative AI model integration training for the world's top organizations.
