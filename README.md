@@ -11,7 +11,6 @@
 - 💞️ I’m looking to collaborate on MotionPictures
 - 📫 How is it to reach me? .Difficult.
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Quarterfinalist, 2021 ScreenCraft Pilot Competition, Series Creator: "Whiskey Kings," an American Prohibition drama about two American soldiers from different worlds whose unlikely bond leads them to both amazing overnight success and the fight of their lives.
+- ⚡ Fun fact: Quarterfinalist, 2021 ScreenCraft Pilot Competition, Series Creator: "Whiskey Kings," an American Prohibition drama about two American soldiers from different worlds whose unlikely bond leads them to remarkable, hard-won success — and the fight of their lives.
 
---->👆👆👆🙏🙏🙏🙌🙌🙌✈️✈️✈️👌👌👌
-...Optimal quality writing, editing, content creation, content strategy
+
